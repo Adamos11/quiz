@@ -1,1 +1,1 @@
-Edycja na własnym PC.
+
